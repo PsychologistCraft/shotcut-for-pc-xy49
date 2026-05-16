@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows vip Effect: video-stabilization & multi-track-editing is the best Shotcut for PC | Shotcut for Windows effect, featuring video-stabilization
 
 
 
